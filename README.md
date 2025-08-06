@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Mubarak
+- 👋 Hi, I’m Mubarakhttps://github.com/Mubarak996/Mubarak996/blob/main/IMG-20240329-WA0035.jpg?raw=true
 - 👀 I’m interested in 
 - 🌱 I’m currently learning
 -  💞️ I’m looking to collaborate on ...
